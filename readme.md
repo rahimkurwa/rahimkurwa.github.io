@@ -32,7 +32,7 @@ B.A. in Political Science, University of California, Los Angeles, 2008
 
 **Academic Writing**
 
-Kurwa, Rahim. in progress_.__Indefensible Spaces:_ _Policing and the Remaking of Segregation in the Antelope Valley._
+Kurwa, Rahim. in progress. _Indefensible Spaces:_ _Policing and the Remaking of Segregation in the Antelope Valley._
 
 Kurwa, Rahim. forthcoming. "[Policing, Property, and the Production of Racial Segregation](https://osf.io/preprints/socarxiv/wur89)." _The Sociology of Housing._ Forthcoming.University of Chicago Press.
 
