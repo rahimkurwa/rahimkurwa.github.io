@@ -32,9 +32,9 @@ B.A. in Political Science, University of California, Los Angeles, 2008
 
 **Academic Writing**
 
-Kurwa, Rahim. in progress. _Indefensible Spaces:_ _Policing and the Remaking of Segregation in the Antelope Valley._
+Kurwa, Rahim. In progress. _Indefensible Spaces:_ _Policing and the Remaking of Segregation in the Antelope Valley._
 
-Kurwa, Rahim. forthcoming. "[Policing, Property, and the Production of Racial Segregation](https://osf.io/preprints/socarxiv/wur89)." _The Sociology of Housing._ Forthcoming.University of Chicago Press.
+Kurwa, Rahim. Forthcoming. "[Policing, Property, and the Production of Racial Segregation](https://osf.io/preprints/socarxiv/wur89)." _The Sociology of Housing._ Forthcoming.University of Chicago Press.
 
 Kurwa, Rahim, and Susila Gurusami. 2022. "[Carceral Migrations: Reframing Race, Space, and Punishment](https://github.com/rahimkurwa/publications/blob/main/Kurwa%20and%20Gurusami%20-%202022%20-%20Carceral%20Migrations.pdf)." _Social Service Review_ 96, no. 2: 353-388.
 
