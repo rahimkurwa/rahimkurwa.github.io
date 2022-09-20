@@ -1,10 +1,11 @@
 #### Rahim Kurwa
 
 Department of Criminology, Law, and Justice
- University of Illinois Chicago
+
+University of Illinois Chicago
 
 1007 West Harrison Street, #4050D
- Chicago, IL 60607-7104
+Chicago, IL 60607-7104
 
 [rak@uic.edu](mailto:rak@uic.edu)
 
